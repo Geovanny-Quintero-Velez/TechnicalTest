@@ -1,0 +1,13 @@
+# Fifth exersice
+
+
+
+## Adán y Eva
+
+Érase una vez un chico y una chica, vivían en el jardín del Edén y tenían prohibido salir de ahí. El chico se llamaba Adán y la chica Eva, él era un hombre conformado con su vida actual, creía que su mundo era perfecto y que nada le faltaba, ¿y porque dudaría? Tenía comida, un lugar donde dormir y a Eva, por quien sentía un gran **amor**. Eva por otra parte ansiaba más, quería conocer que había más allá del jardín a pesar del **miedo** que le generaba lo desconocido, su curiosidad y emoción era mayor; Ella también sentía amor por Adán, pero no estaba de acuerdo con su deseo de jamás salir. 
+
+Una noche, Eva decidida le comento a Adán que se marchaba y que quería que la acompañara. Él se llenó de **terror** e histérico se negó a irse con ella. Ella tomo algo de comida y se marchó. Apenas cruzo el umbral donde acababa el jardín, sintió un dolor en el pie, se había cortado, algo que jamás había experimentado. Observo curiosa la **sangre** y siguió su camino. Observo animales que jamás había visto, animales que intentaban atacarla. Las primeras veces huía; pero luego aprendió a hacerles frente. Conoció personas interesantes como a un anciano muy sabio llamado **muerte**, que le hablo de cuanto amaba a su esposa vida, y a pesar de que tenían personalidades contrarias, él y su esposa sabían que no podían ser el uno sin el otro. Esto hizo que Eva extrañara mucho a Adán y emprendió el viaje de regreso.
+
+Luego de un largo viaje lleno de aprendizaje Eva llego de nuevo al jardín del Edén; sin embargo, dado que era prohibido salir, ahora había sido exiliada por una fuerza mayor. Eva clamó por Adán, quien se asomó emocionado hasta las lágrimas de verla. Eva pudo observar todo lo que Adán había construido en el jardín del Edén. Había mejorado la casa, aprendió a cultivar y estaba feliz con lo que aprendió a lo largo de los años, cosas que aprendió tratando de ocuparse para no pensar en Eva. Eva le comento todo lo que había visto y aprendido; se notaba su emoción en su voz. Eva conto la historia de los ancianos muerte y vida. Instantáneamente ambos entendieron que ellos también eran opuestos, pero eso nunca les impidió amarse. Separarse del otro les enseño a valerse por sí mismos y perseguir lo que cada uno anhelaba, los hizo mejores y cada uno en su aventura aprendió mucho.
+
+Ahora Adán y Eva Siguen su propia vida, cada cierto tiempo se reúnen para hablar de sus aventuras y de todo lo que han aprendido. Adán y Eva nos enseñan que cada persona debe perseguir sus sueños sin atar a la persona que decimos amar; ser diferente está bien y seguir nuestro camino puede ser una historia que nunca olvidemos y la cual podamos compartir con los que amamos... desde la libertad.
